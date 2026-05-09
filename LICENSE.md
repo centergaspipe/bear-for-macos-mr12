@@ -1,4 +1,4 @@
-
+Bear for macOS exclusive Integration - quick search and export to PDF offers the most advanced Bear for macOS integration, with quick search and export to PDF. Ideal for
 
 
 
